@@ -1,6 +1,6 @@
 # This is guide how to use TIKFAP, Scroll down !
-Twitter: @TikfapOfficial / https://twitter.com/TikfapOfficial
-Instagram: @TikfapOfficial / https://www.instagram.com/tikfapofficial/
+- Twitter: @TikfapOfficial / https://twitter.com/TikfapOfficial
+- Instagram: @TikfapOfficial / https://www.instagram.com/tikfapofficial/
 
 ## Poster
 ![Blue Wihte Modern Download Our App Facebook Post](https://user-images.githubusercontent.com/121562206/209826955-20979038-748c-4d43-b78e-131c8506f756.png)
