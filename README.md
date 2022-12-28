@@ -22,6 +22,8 @@ Link Download: https://linktr.ee/tikfapofficial
 - Trakteer 
 ![How to become VIP  (1)](https://user-images.githubusercontent.com/121562206/209827185-32baa7b4-1b6a-4884-80f3-664c1fd32fe9.png)
 
+![How to pay using trakteer](https://user-images.githubusercontent.com/121562206/209827670-1ac40af8-7d73-4c5e-a5b6-ee6c9f63efa0.png)
+
 - Patreon
 ![How to become VIP  (2)](https://user-images.githubusercontent.com/121562206/209827172-c6e4d552-99c5-4677-a18b-5c33b35e9db0.png)
 
