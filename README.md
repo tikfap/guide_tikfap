@@ -1,8 +1,11 @@
 # This is guide how to use TIKFAP, Scroll down !
-- Twitter: @TikfapOfficial / https://twitter.com/TikfapOfficial
+- Link for more information: https://linktr.ee/tikfapofficial
+- Twitter: @TikfapOfficial / https://twitter.com/TikfapOfficial (suspended)
+= New Twitter: @TikfapOfficial_ (new account)
 - Instagram: @TikfapOfficial / https://www.instagram.com/tikfapofficial/
 
 ## Poster
+![Black Masculine Open Hour Gym Landscape Poster](https://user-images.githubusercontent.com/121562206/215361280-5e5c8688-2c62-4ebd-bd9d-90e85cf38e1b.png)
 ![Blue Wihte Modern Download Our App Facebook Post](https://user-images.githubusercontent.com/121562206/209826955-20979038-748c-4d43-b78e-131c8506f756.png)
 
 
